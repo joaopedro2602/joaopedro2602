@@ -1,4 +1,4 @@
-### Oi, sou o João Pedro e aqui posto meus projetos desenvolvidos em aula 👋
+### Oi, sou o João Pedro e aqui posto meus projetos desenvolvidos em aula 👋😀👌
 
 <br>
 <br>
